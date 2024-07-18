@@ -1,5 +1,4 @@
 # IA-Creativa-challenge-grupo-38
-Green Office
 ### Usuario y Gregorio: Planificación de InnoVision Studios
 
 #### 1. Resumen de las mejores agencias de publicidad
